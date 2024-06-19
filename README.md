@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding, Crochet and Origami
 - 🌱 I’m currently learning C#, Python and JavaScript soon
 - 💞️ I’m looking to collaborate on scratch and anything else
-- 📫 How to reach me ...
+- 📫 How to reach me email me at jackyzhou1162@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: not that old
 
